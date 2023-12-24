@@ -1,0 +1,2 @@
+# Uganda
+Republic of Uganda.
